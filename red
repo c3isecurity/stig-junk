@@ -1,2 +1,0 @@
-Started new red file
-
